@@ -1,1 +1,0 @@
-# Mess-Management-Training-Class-01-25
